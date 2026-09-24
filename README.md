@@ -21,7 +21,11 @@
  ${\textsf{\color{#0e0d13}20 y.o}}$
  
  ${\textsf{\color{#935471} genshin⠀player⠀since⠀april 2021⠀and⠀wrio⠀yume⠀since⠀december⠀2023}}$
-  
+
+  ${\textsf{\color{#0e0d13} huge⠀cudcomf⠀,⠀c*h⠀freely⠀!!⠀do⠀NOT⠀cover⠀unless⠀you're⠀cuddling }}$
+
+  ${\textsf{\color{#935471} (♡ˊ͈ ꒳ ˋ͈) }}$
+
 </details>
   
 <p align="center"> ${\textsf{\color{#0e0d13} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
