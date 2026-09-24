@@ -1,15 +1,33 @@
 <div align="center"><img width="640" height="147" alt="tumblr_4302f7a45db23d58706eb1f58075c398_c9f23204_640" src="https://github.com/user-attachments/assets/704a7ac8-67fd-4bb4-bdf3-99d9b769dd08" />
-<div align="center"> <a href="https://hits.sh/github.com/chuubunny/"><img alt="Hits" src="https://hits.sh/github.com/chuubunny.svg?label=%E2%8A%B9%20%E0%A3%AA%20%CB%96%20kills%20%E0%BB%92%EA%92%B1&color=a43331&labelColor=e2decd"/></a>
+<div align="center"> <a href="https://hits.sh/github.com/putmetorestimnotyourstosave/"><img alt="Hits" src="https://hits.sh/github.com/putmetorestimnotyourstosave.svg?label=%E2%80%A7%CB%9A%EA%92%B0prisoners%E0%AD%AD%20%CB%9A.%20%E1%B5%8E%E1%B5%8E&color=935471&labelColor=0e0d13"/></a>
   
-<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=950000&width=435&lines=%22HEY%2C+stupid+detective+agency%2C+motherfuckers!%22;%22Boss+told+me+to+pick+you+up+for+daycare!%22" alt="Typing SVG" /></a>
+<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=93546F&width=435&lines=Word+of+advice%3A+Don't+break+the+law.;+Hmm%2C+is+there+anything+else%3F;+Oh%2C+yeah...+Seriously%2C;Don't+break+the+law." alt="Typing SVG" /></a>
 
 <div align="center"> <img width="640" height="360" alt="tumblr_a361350f6e1ffcb9506af2bcdcacd65b_75247baa_640" src="https://github.com/user-attachments/assets/adbd55bd-81e7-434c-b49e-5b49f4d29150" />
-<p align="center"> <sub> ${\textsf{\color{#6c0009} chuuya yume , dbls dni}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#93546F} wriothesley yume , dbls dni}}$ </sub>
+
+<details> 
+  <summary>${\textsf{\color{#0e0d13} pt info}}$ </summary> 
+    ${\textsf{\color{#935471} unavailable⠀from⠀10 pm⠀-⠀10⠀am⠀UTC+3}}$
+    
+  ${\textsf{\color{#0e0d13} be⠀mindful⠀of⠀what⠀you⠀say⠀to⠀us⠀,⠀we’re⠀sensitive⠀and⠀take⠀most⠀things⠀to⠀heart}}$
   
-<p align="center"> ${\textsf{\color{#aa000f} " oh, grantors of dark disgrace, do not wake me again... " }}$
+  ${\textsf{\color{#935471} i⠀have⠀a⠀dni⠀and⠀also⠀block⠀freely,⠀if⠀i’m sitting⠀on⠀someone⠀they’re⠀likely⠀blocked!}}$
+  
+  ${\textsf{\color{#0e0d13} we⠀have⠀dyslexia⠀so⠀if⠀you⠀have⠀typing⠀quirks⠀like⠀leet⠀pls⠀pls⠀tone⠀it⠀down⠀around⠀us⠀૮꒰◞ ˕ ◟ ྀི꒱ა }}$
+  
+  ${\textsf{\color{#935471} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
+  
+ ${\textsf{\color{#0e0d13}20 y.o}}$
+ 
+ ${\textsf{\color{#935471} genshin⠀player⠀since⠀april 2021⠀and⠀wrio⠀yume⠀since⠀december⠀2023}}$
+  
+</details>
+  
+<p align="center"> ${\textsf{\color{#0e0d13} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
 <div align="center">
 
  [atabook](https://malharejayexe.atabook.org/) ໒꒰ྀི ˶> ˕ <˶꒱ྀི১ [straw](https://yourlocaljayjay.straw.page/)
 <div align="center"> <img width="640" height="156" alt="tumblr_93a697ad9b5884de1c9085c84706d098_7356db3e_640" src="https://github.com/user-attachments/assets/944e4b32-5276-4542-8356-346ba2a601ed" />
 
-<p align="center"> <sub> ${\textsf{\color{#6c0009} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#93546F} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
