@@ -31,7 +31,9 @@
 <p align="center"> ${\textsf{\color{#0e0d13} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
 <div align="center">
 
- [atabook](https://malharejayexe.atabook.org/) ໒꒰ྀི ˶> ˕ <˶꒱ྀི১ [straw](https://yourlocaljayjay.straw.page/)
-<div align="center"> <img width="640" height="156" alt="tumblr_93a697ad9b5884de1c9085c84706d098_7356db3e_640" src="https://github.com/user-attachments/assets/944e4b32-5276-4542-8356-346ba2a601ed" />
+<a href=https://malharejayexe.atabook.org/>
+ <img width="214" height="122" alt="Untitled218_20260925032128" src="https://github.com/user-attachments/assets/e1316ec6-9f1d-4baa-b9ce-93bbf09a20d1" /> <href=https://https://yourlocaljayjay.straw.page/> <img width="315" height="102" alt="Untitled218_20260925032206" src="https://github.com/user-attachments/assets/01f3e353-4b6c-486e-9958-4b50e84de871" />
+
+  </a>
 
 <p align="center"> <sub> ${\textsf{\color{#93546F} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
