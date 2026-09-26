@@ -36,6 +36,6 @@
 
   </a>
 
-<p align="center"> <sub> ${\textsf{\color{#93546F} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
-
 <div align="center"><img width="640" height="156" alt="tumblr_93a697ad9b5884de1c9085c84706d098_7356db3e_640" src="https://github.com/user-attachments/assets/e77dfda9-1f16-4db9-83e5-aeafb594d331" />
+
+<p align="center"> <sub> ${\textsf{\color{#93546F} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
